@@ -1,2 +1,0 @@
-# WatKanJeWelPuntNl
-Cool Effects
